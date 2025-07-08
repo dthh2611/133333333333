@@ -40,7 +40,7 @@
 选择适合的日本AV免费资源平台不仅能够提供良好的观看体验，还能确保用户在享受免费内容时的安全性。无论是在线观看，还是下载资源，都有许多优质平台值得推荐。记得选择信誉良好的站点，避免访问不安全的网站，保护个人隐私和设备安全。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dthh2611/133333333333  ）</span>
 
 
 
